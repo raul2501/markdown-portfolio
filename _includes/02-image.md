@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+[My head] (https://imgur.com/0Q0epNO)
