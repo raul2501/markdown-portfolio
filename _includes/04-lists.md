@@ -1,0 +1,8 @@
+- Here are some of the things I enjoy:
+  - Thinking
+  - Socializing
+  - Playing video games (mostly FIFA)
+  - Reading psychology, finance, business, sociology related topics. 
+  - Podcasts on simiar topics
+  - Learning new things (especially how to code) 
+  - Food
